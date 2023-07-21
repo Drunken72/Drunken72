@@ -1,6 +1,6 @@
-# 👑 KEEP CALM AND SUPPORT CONFLICT 👑
+      \    /\
+       )  ( ')
+      (  /  )
+       \(__)|
 
-      ／|、             
-    （ﾟ､ ｡ ７         
-      |  ~ヽ       
-      じしf_,)ノ
+
